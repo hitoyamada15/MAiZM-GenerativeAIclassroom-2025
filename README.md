@@ -1,0 +1,1 @@
+# MAiZM-GenerativeAIclassroom-2025
